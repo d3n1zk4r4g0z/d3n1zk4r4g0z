@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @d3n1zk4r4g0z
+- 👀 I’m interested in drawings 
+- 🌱 I’m currently learning software
+- 💞️ I’m looking to collaborate on painting 
+- ❤️ I like to draw
+- 💗 I'm Turkish 
